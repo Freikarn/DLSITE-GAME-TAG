@@ -65,11 +65,11 @@ SAKURASAKUKOUBOU:
 
 
 Socrates（ソクラテス）:
-<img align="left" width="200" src="https://i.imgur.com/59aZSZ4.png">
+<img align="left" width="200" src="https://i.imgur.com/naunnk9.png">
 
 [DLsite](https://www.dlsite.com/maniax/circle/profile/=/maker_id/RG03672.html)
 
-Cien
+Cien [Inactive]
 
 Twitter
 

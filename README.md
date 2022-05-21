@@ -39,16 +39,16 @@ Atelier Choice（アトリエチョイス）:
 AVANTGARDE（アヴァンギャルド）:
 <img align="left" width="200" src="https://i.imgur.com/pDpsIWc.png">
 
-www.dlsite.com/maniax/circle/profile/=/maker_id/RG30588.html
+[DLsite](www.dlsite.com/maniax/circle/profile/=/maker_id/RG30588.html)
 
-https://ci-en.dlsite.com/creator/69
+[Cien](https://ci-en.dlsite.com/creator/69)
 
-https://twitter.com/musori_kohshi
+[Twitter](https://twitter.com/musori_kohshi)
 
 Moccori Factory（モッコリファクトリー）:
 <img align="left" width="200" src="https://i.imgur.com/59aZSZ4.png">
 
-https://www.dlsite.com/maniax/circle/profile/=/maker_id/RG13297.html
+[DLsite](https://www.dlsite.com/maniax/circle/profile/=/maker_id/RG13297.html)
 
 Cien
 
@@ -57,7 +57,7 @@ Twitter
 SAKURASAKUKOUBOU:
 <img align="left" width="200" src="https://i.imgur.com/59aZSZ4.png">
 
-https://www.dlsite.com/maniax/circle/profile/=/maker_id/RG09134.html
+[DLsite](https://www.dlsite.com/maniax/circle/profile/=/maker_id/RG09134.html)
 
 Cien
 

@@ -3,6 +3,14 @@
 
 
 
+Aya (アヤ): 
+
+<img align="left" width="200" src="https://i.imgur.com/FCkMKxS.png">
+
+
+
+[artist:aya$](https://exhentai.org/tag/artist:aya)
+
 
 
 

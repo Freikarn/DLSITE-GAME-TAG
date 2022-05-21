@@ -37,7 +37,7 @@ Cien
 Twitter
 
 AVANTGARDE（アヴァンギャルド）:
-<img align="left" width="200" src="https://i.imgur.com/59aZSZ4.png">
+<img align="left" width="200" src="https://i.imgur.com/pDpsIWc.png">
 
 www.dlsite.com/maniax/circle/profile/=/maker_id/RG30588.html
 

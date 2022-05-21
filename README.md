@@ -30,11 +30,11 @@ DLSITE GROUPS
 Atelier Choice（アトリエチョイス）:
 <img align="left" width="200" src="https://i.imgur.com/59aZSZ4.png">
 
-https://www.dlsite.com/maniax/circle/profile/=/maker_id/RG20772.html
+[DLsite](https://www.dlsite.com/maniax/circle/profile/=/maker_id/RG20772.html)
 
-Cien
+[Cien](https://ci-en.dlsite.com/creator/976)
 
-Twitter
+[Twitter](https://twitter.com/f_da_choice)
 
 AVANTGARDE（アヴァンギャルド）:
 <img align="left" width="200" src="https://i.imgur.com/pDpsIWc.png">

@@ -55,13 +55,13 @@ Cien
 Twitter
 
 SAKURASAKUKOUBOU:
-<img align="left" width="200" src="https://i.imgur.com/59aZSZ4.png">
+<img align="left" width="200" src="https://i.imgur.com/I5d0FYR.png">
 
 [DLsite](https://www.dlsite.com/maniax/circle/profile/=/maker_id/RG09134.html)
 
-Cien
+[Cien](https://ci-en.dlsite.com/creator/4513)
 
-Twitter
+[Twitter](https://twitter.com/kikko_shibaru)
 
 
 Socrates（ソクラテス）:

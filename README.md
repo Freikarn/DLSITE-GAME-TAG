@@ -49,6 +49,9 @@ ETC
 Formatting
 
 
+Dead Group: Alibi（アリバイ）
+
+https://www.dlsite.com/maniax/circle/profile/=/maker_id/RG26065.html
 
 
 

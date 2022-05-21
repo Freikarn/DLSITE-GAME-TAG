@@ -6,9 +6,9 @@
 Aya (アヤ): 
 <img align="left" width="200" src="https://i.imgur.com/vAj1odO.png">
 
-メルフィアス 蒼紅のヴァージェ [dorgel]
+メルフィアス 蒼紅のヴァージェ
 
-By dorgel
+[dorgel](https://www.dlsite.com/maniax/circle/profile/=/maker_id/RG33630.html)
 
 
 [RJ345647](https://www.dlsite.com/maniax/announce/=/product_id/RJ345647.html)

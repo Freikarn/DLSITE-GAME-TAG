@@ -67,7 +67,7 @@ Twitter
 Socrates（ソクラテス）:
 <img align="left" width="200" src="https://i.imgur.com/59aZSZ4.png">
 
-https://www.dlsite.com/maniax/circle/profile/=/maker_id/RG03672.html
+[DLsite](https://www.dlsite.com/maniax/circle/profile/=/maker_id/RG03672.html)
 
 Cien
 

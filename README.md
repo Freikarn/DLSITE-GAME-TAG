@@ -28,7 +28,7 @@ ETA: Early Dec. 2022
 DLSITE GROUPS
 
 Atelier Choice（アトリエチョイス）:
-<img align="left" width="200" src="https://i.imgur.com/59aZSZ4.png">
+<img align="left" width="200" src="https://i.imgur.com/zm4w5Rr.png">
 
 [DLsite](https://www.dlsite.com/maniax/circle/profile/=/maker_id/RG20772.html)
 

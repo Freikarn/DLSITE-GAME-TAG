@@ -31,6 +31,14 @@ Atelier Choice（アトリエチョイス）:
 
 https://www.dlsite.com/maniax/circle/profile/=/maker_id/RG20772.html
 
+AVANTGARDE（アヴァンギャルド）:
+
+www.dlsite.com/maniax/circle/profile/=/maker_id/RG30588.html
+
+https://ci-en.dlsite.com/creator/69
+
+https://twitter.com/musori_kohshi
+
 Moccori Factory（モッコリファクトリー）:
 
 https://www.dlsite.com/maniax/circle/profile/=/maker_id/RG13297.html

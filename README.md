@@ -4,9 +4,9 @@
 
 
 Aya (アヤ): 
-<img align="left" width="200" src="https://i.imgur.com/FCkMKxS.png">
+<img align="left" width="200" src="https://imgur.com/vAj1odO">
 
-[artist:aya$](https://exhentai.org/tag/artist:aya)
+[メルフィアス 蒼紅のヴァージェ [dorgel]](https://www.dlsite.com/maniax/announce/=/product_id/RJ345647.html)
 
 
 
@@ -24,6 +24,10 @@ SAKURASAKUKOUBOU:
 
 https://www.dlsite.com/maniax/circle/profile/=/maker_id/RG09134.html
 
+
+Socrates（ソクラテス）:
+
+https://www.dlsite.com/maniax/circle/profile/=/maker_id/RG03672.html
 
 ///-----------///
 

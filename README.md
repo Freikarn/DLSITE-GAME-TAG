@@ -27,6 +27,10 @@ ETA: Early Dec. 2022
 
 DLSITE GROUPS
 
+Atelier Choice（アトリエチョイス）:
+
+https://www.dlsite.com/maniax/circle/profile/=/maker_id/RG20772.html
+
 Moccori Factory（モッコリファクトリー）:
 
 https://www.dlsite.com/maniax/circle/profile/=/maker_id/RG13297.html

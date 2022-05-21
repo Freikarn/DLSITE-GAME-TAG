@@ -7,7 +7,7 @@
 <img align="left" width="200" src="https://i.imgur.com/vAj1odO.png">
 
 
-Scheduled release date: Early Dec. 2022
+ETA: Early Dec. 2022
             
 
 [dorgel](https://www.dlsite.com/maniax/circle/profile/=/maker_id/RG33630.html)

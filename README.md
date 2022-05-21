@@ -4,7 +4,7 @@
 
 
 Aya (アヤ): 
-<img align="left" width="200" src="https://imgur.com/vAj1odO">
+<img align="left" width="560" src="https://imgur.com/vAj1odO">
 
 [メルフィアス 蒼紅のヴァージェ [dorgel]](https://www.dlsite.com/maniax/announce/=/product_id/RJ345647.html)
 

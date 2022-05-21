@@ -27,6 +27,10 @@ ETA: Early Dec. 2022
 
 DLSITE GROUPS
 
+Moccori Factory（モッコリファクトリー）:
+
+https://www.dlsite.com/maniax/circle/profile/=/maker_id/RG13297.html
+
 SAKURASAKUKOUBOU:
 
 https://www.dlsite.com/maniax/circle/profile/=/maker_id/RG09134.html
